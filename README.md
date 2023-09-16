@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @nment
+- 👀 I’m interested in Architecture and Automation
+- 🌱 I’m currently learning Building Information Modeling
+- 💞️ I’m looking to collaborate on projects
+- 📫 How to reach me? Instagram ArqMNDS
